@@ -11,4 +11,4 @@
 [wik](https://github.com/CLOWNPlERCE)
 [mark](https://github.com/SP0KEISHERE)
 [sammi](https://github.com/prideduo)
-[north](https://rentry.co/Ztormbringercookie)
+[north](https://github.com/joostkIein)
