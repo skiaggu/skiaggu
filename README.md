@@ -5,10 +5,4 @@
 　　    　　　　　　　　𖤐　　　　　　[rntry](https://rentry.co/paul)     　[strwpge](https://wein.straw.page/)
               
  ![](https://i.postimg.cc/prGzr7PX/space.png)
-                   
-♥ weedsters gc
-
-[wik](https://github.com/CLOWNPlERCE)
-[mark](https://github.com/SP0KEISHERE)
-[sammi](https://github.com/prideduo)
-[north](https://github.com/joostkIein)
+             
