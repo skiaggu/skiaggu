@@ -1,8 +1,8 @@
-![](https://files.catbox.moe/2dy8cn.png)
+![](https://files.catbox.moe/tqcm0g.png)
 
-　　　　　　　　　　　　　　　　 or paul　.　she / her　  ![](https://gifs.crd.co/assets/images/gallery25/ec0b2ee7.png?v=ef433a6f)
+　　　　　　　　　　　　　　　　 **paul**　.　she / her　  ![](https://gifs.crd.co/assets/images/gallery25/ec0b2ee7.png?v=ef433a6f)
 
-　　    　　　　　　　　𖤐　　　　　　[rntry](https://rentry.co/paul)     　[strwpge](https://wein.straw.page/)
+　　    　　　　　　　　𖤐　　　　　　[*rntry*](https://rentry.co/paul)     　[*strwpge*](https://wein.straw.page/)
               
  ![](https://i.postimg.cc/prGzr7PX/space.png)
              
