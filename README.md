@@ -5,7 +5,6 @@
 　　    　　　　　　　　𖤐　　　　　　[*rntry*](https://rentry.co/paul)     　[*strwpge*](https://wein.straw.page/)
               
  ![](https://i.postimg.cc/prGzr7PX/space.png)
-             
-tea and biscuits 🇬🇧 gang
 
-[sammi](https://github.com/prideduo) 　　    　　[mark](https://github.com/SP0KEISHERE) 　　    　　[wiktor](https://github.com/CLOWNPlERCE)
+**tw fire extinguisher**
+![](https://files.catbox.moe/v8fx03.png)
