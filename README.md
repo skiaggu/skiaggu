@@ -1,3 +1,1 @@
-![](https://files.catbox.moe/gdea3m.png)
-
-`wip . . .`
+ugh i'll do it l8er
